@@ -1,2 +1,2 @@
 # myprofile
-This is my new site for my profile.
+This is my profile for Monkey D. Luffy, THE GOAT!
